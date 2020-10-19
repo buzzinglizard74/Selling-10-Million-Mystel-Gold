@@ -6,6 +6,6 @@ Hi, I'm selling 10 Million Gold on Mystel since i have too much and dont need it
 
 Price = 10$ per 1 Million
 
-Payment options are only Paypal since its the most comon I'm up for trading low amounts if you are not trusting me.
+Payment options are only Paypal since its the most comon I'm up for trading low amounts if you dont trust me.
 
 Thanks for reading!
